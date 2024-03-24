@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Kshaw12
 - 👀 I’m interested in learning, but my background is in Science.
-- 🌱 I’m currently learning python.
+- 🌱 I’m currently learning MERN.
 - 📫 How to reach me 12ktmart@gmail.com
 - ⚡ Fun fact: I didn't start getting freckles until I was 5 yrs old.
 
