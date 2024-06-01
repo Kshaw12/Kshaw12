@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Kshaw12
-- 👀 I’m interested in learning, but my background is in Science.
+- 👀 I’m interested in learning, and my background is in Science.
 - 📫 How to reach me 12ktmart@gmail.com
 - ⚡ Fun fact: I didn't start getting freckleRN.s until I was 5 yrs old.
 
