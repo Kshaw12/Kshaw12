@@ -1,6 +1,7 @@
 - 👋 Hi, I’m @Kshaw12
 - 👀 I’m interested in learning, and my background is in Science.
 - 📫 How to reach me 12ktmart@gmail.com
+-                     linkedin.com/in/keshia-shaw/
 - ⚡ Fun fact: I didn't start getting freckles until I was 5 yrs old.
 
 <!---
